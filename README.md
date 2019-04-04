@@ -8,4 +8,11 @@ sja mleko melkkdf jdfk
 gdvhjdfdcsc
 sdf
 dsf
-cvgvbhjnkmdfghj
+
+cvgvbhjn  kmdfghj
+
+##Licencja
+
+sdxcfgvbhjjhgf
+gbhjnk
+MIT
